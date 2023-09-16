@@ -13,7 +13,7 @@ I'm currently seeking opportunities as a **Web3 Developer / Smart Contracts Prog
 
 ## 📫 How to Reach Me
 
-Feel free to [send me an email](mailto:ychooeth@gmail.com) or connect with me on [LinkedIn](www.linkedin.com/in/vladislav-zavtur-b4a794283).
+Feel free to [send me an email](mailto:ychooeth@gmail.com) or connect with me on [LinkedIn](https://linkedin.com/in/vladislav-zavtur-b4a794283).
 
 ## 📈 Some of My GitHub Stats
 
